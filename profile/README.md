@@ -10,5 +10,5 @@ Individual narratives, such as Jessica's journey with Digestive Advantage probio
 Experts like Larry Rafey emphasize the transformative potential of probiotics, from mitigating antibiotic-induced disruptions to fortifying the body against various ailments. With a background in microbiology, Rafey lends credence to the pivotal role of probiotics in fostering vitality and resilience.
 
 <h2>Conclusion: Embrace Vibrant Health with Alicia's Naturals FlowFlora</h2>
-<a href="https://aliciasnaturals.com/products/flowflora-capsules"><img src="https://imgur.com/a/HWgBkQk"></a>
+<a href="https://aliciasnaturals.com/products/flowflora-capsules"><img src="https://i.imgur.com/WJOlAB0.png"></a>
 <a href="https://aliciasnaturals.com/products/flowflora-capsules">Alicia's Naturals FlowFlora emerges as a standout choice for women over 50</a> seeking to nurture their gut health. Backed by scientific research, fortified by personal testimonials, and endorsed by experts, FlowFlora represents a holistic approach to well-being. Invest in your vitality with FlowFlora and embark on a journey towards vibrant health in every stage of life.
